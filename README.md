@@ -9,4 +9,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 Você pode entrar em contato comigo 📫
 00001096459486sp@al.educacao.sp.gov.br
+
 ![](https://media1.tenor.com/m/ttFRhdNIsBYAAAAd/luciano-chutando.gif)
